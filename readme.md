@@ -8,9 +8,10 @@
 
 1. All about travelling.
 
-- Travel: Exploring new cultures and cuisines excites me. Traveling broadens my perspective and enriches my experiences.
 
--  Photography: I have a passion for capturing moments through photography. It allows me to express my creativity and preserve memories.
+🏔️- Travel: Exploring new cultures and cuisines excites me. Traveling broadens my perspective and enriches my experiences.
+
+📸-  Photography: I have a passion for capturing moments through photography. It allows me to express my creativity and preserve memories.
 
 ---
 
